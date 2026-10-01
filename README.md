@@ -6,7 +6,7 @@ I graduated with a B.S. and M.S. in neuroscience. Half North, half South Indian,
 * Trained in Indian classical music with a Sangeet Prabhakar. 
 * Speak Hindi, English, Malayalam and French, and currently on track for Mandarin. 
 * My alternative career would be theatrical education (I might have invented the name but basically yes). In process of writing, directing and producing my own first short film. 
-* Trying to formally documenting my independent research on consciousness, but founder life doesn't leave time this year.
-* Fun fact: Debating philosophies is the medicine to my OEs😊 
+* Will catch up with theoretical neuroscience research in a bit, but open to conversations in the meantime.
+* Fun fact: Debating philosophies is the medicine to my OEs😊.
 
 I am best reached via [email](ishakaushik12a@gmail.com). 
